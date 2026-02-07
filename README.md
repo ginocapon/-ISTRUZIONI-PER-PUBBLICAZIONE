@@ -3,7 +3,7 @@
 
 🎯 STEP 0: EXECUTIVE SUMMARY
 
-✅ 4000+ parole AI-proof strutturate
+✅ 2500+ parole AI-proof strutturate
 ✅ 35% transition words + 8% dialetto Veneto naturale
 ✅ 28 H2/H3 distribuiti + errori umani casuali (non forzati)
 ✅ SPINTAX 24 varianti social pronte
